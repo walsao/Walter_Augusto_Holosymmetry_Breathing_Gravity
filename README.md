@@ -1,9 +1,9 @@
 # Walter_Augusto_Holosymmetry_Breathing_Gravity
-Breathing-based gravity theory: Condensation of relational breathing tension into spacetime curvature. Simulation and theory by Walter Augusto.
+Breathing-based gravity theory: Condensation of relational breathing tension into spacetime curvature. Simulation and theory by Walter Augusto Lettau.
 
-✨ Walter Augusto’s Holobreathing Gravity Theory
+✨ Walter Augusto Lettau's Holobreathing Gravity Theory
 
-Conceptualized and Proposed by Walter Augusto (@walsao), April 2025
+Conceptualized and Proposed by Walter Augusto Lettau (@walsao), April 10, 2025
 
 ⸻
 
